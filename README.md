@@ -1,1 +1,1 @@
-My webpage is intended to show my hobbies and my ongoing research. I would love to share with the academic community my enthusiasm and my passion.
+My webpage is intended to show my hobbies and my ongoing research. I would love to share with the academic community my enthusiasm and my passion. I am interested in changing the world from a small to a large scale, and I believe that through the understanding of phenomena, we can put ourselves into action.
